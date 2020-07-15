@@ -48,4 +48,4 @@ qq群 334522247
 
 ### contributor
 - NichijouCC 👾👾👾
-- vicky 😀😀😀
+- Vicky 😀😀😀
